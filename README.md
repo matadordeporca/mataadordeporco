@@ -3,7 +3,7 @@
 
 - imgem que me define
 
-- meu no de verdade é Vinicius mas pode me de kto
+- meu nome de verdade é Vinicius mas pode me de kto
 - Sou um menino tenho 14 moro párana
 - Gosto de RPG, vlolei, dormi, mitologia, robótica, futebol( corintias (timão) ) e loiras mas curto todo ttipo de gatinhas
 - tenho medo traveco
